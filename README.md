@@ -1,0 +1,1 @@
+# satt-negative-response-price
